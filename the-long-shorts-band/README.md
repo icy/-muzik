@@ -11,4 +11,4 @@ sub-bass -> dubstep
 * dubstep started in London, ~2000s
 * sub-bass, edm, syncopated rhythm pattern (vietnamese: đảo phách)
 * since 2014 : decline in mainstream.
-* sample dubstep music: https://www.youtube.com/watch?v=p6j8fuvQICI
+* sample dubstep music: https://www.youtube.com/watch?v=PxduCY08s7E -- Skream - Watch The Ride
