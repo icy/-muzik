@@ -4,9 +4,11 @@
 
 * sub-bass: low frequency, >= 20Hz. You can't probably hear, but you can *feel*.
 * infrasound: <= 20Hz, you can't hear them
+* sample sub-bass music: https://www.youtube.com/watch?v=P1F9MiPr2Vs
 
 sub-bass -> dubstep
 
 * dubstep started in London, ~2000s
 * sub-bass, edm, syncopated rhythm pattern (vietnamese: đảo phách)
 * since 2014 : decline in mainstream.
+* sample dubstep music: https://www.youtube.com/watch?v=p6j8fuvQICI
