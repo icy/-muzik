@@ -1,4 +1,8 @@
-## notes on 2022.10.06
+## notes, 2022.12.07
+
+On Nov 24th I found that my youtube channel had a short name: https://youtube.com/@thelongshortsband. That's just pretty awesome.
+
+## notes, 2022.10.06
 
 > (wiki) The low E-string on a bass guitar is usually tuned to 41.2 Hz, while the lowest note on a standard piano is A at 27.5 Hz
 
