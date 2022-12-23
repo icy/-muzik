@@ -1,3 +1,9 @@
+## notes, 2022.12.23
+
+I ordered an e-drum kit then gave it up. My room is too small. To be a bit poorer I would have to be a lot richer.
+
+Why? The answer is... why not?
+
 ## notes, 2022.12.07
 
 On Nov 24th I found that my youtube channel had a short name: https://youtube.com/@thelongshortsband. That's just pretty awesome.
